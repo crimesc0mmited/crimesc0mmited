@@ -4,7 +4,7 @@
   <h1>𝖈𝖔𝖑𝖉 𝖜𝖆𝖙𝖊𝖗 𝖋𝖊𝖊𝖑𝖘 𝖜𝖆𝖗𝖒.. </h1>
 
 
-　![](https://files.catbox.moe/g4jyp2.gif)　
+　![](https://files.catbox.moe/g4jyp2.gif)　![](https://64.media.tumblr.com/4c44fc528e935b40d361111b6e19c026/c6ded6d0b081f327-c6/s1280x1920/7e6a3aadff0b3062fd276fd31ee2e100f618bb8e.gifv)
 
 ![](https://64.media.tumblr.com/bce2e4d8572f2d7181f84694f2d057b4/fbdc9c85722610ab-88/s500x750/2ddfb2db827c2cf49cb0674da3c880a6ef6c1a24.gifv) 
  
