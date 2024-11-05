@@ -6,8 +6,7 @@
 
 　![](https://files.catbox.moe/g4jyp2.gif)　
 
-![](https://64.media.tumblr.com/bce2e4d8572f2d7181f84694f2d057b4/fbdc9c85722610ab-88/s500x750/2ddfb2db827c2cf49cb0674da3c880a6ef6c1a24.gifv) ![](https://64.media.tumblr.com/bce2e4d8572f2d7181f84694f2d057b4/fbdc9c85722610ab-88/s500x750/2ddfb2db827c2cf49cb0674da3c880a6ef6c1a24.gifv) 
-
+![](https://64.media.tumblr.com/bce2e4d8572f2d7181f84694f2d057b4/fbdc9c85722610ab-88/s500x750/2ddfb2db827c2cf49cb0674da3c880a6ef6c1a24.gifv) 
  
 ![](https://64.media.tumblr.com/987d03487e43305e05367ea6668b9194/b0dfa3373b63dfcf-f7/s2048x3072/56e91cddb5c30e76bafd91214aca70db4b7258bb.pnj)
 
